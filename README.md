@@ -24,13 +24,9 @@ Nathaniel was born in California on September 28, 2008. He was born into this lo
 Quick Facts
 </h1>
 <ul>
-  <li>In recent years he was diagnosed with OCD</li>
   <li>His family color is red</li>
   <li>Basketball is his second favorite sport (soccer is his first)</li>
   <li>He somehow got a girlfriend</li>
 </ul>
-<br>
-<a href="https://ibb.co/fYMx7fg"><img src="https://i.ibb.co/rGkwJYj/2328688.png" alt="2328688" border="0"></a>
-<br>
 </body>
 </html>
