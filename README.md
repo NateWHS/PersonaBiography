@@ -18,7 +18,7 @@ Nathaniel's Early Life
 Nathaniel was born in California on September 28, 2008. He was born into this lovely world and had his mom, dad, and 2 brothers. Growing up he lived in San Pedro but for the start of 4th grade he moved to Cerritos. He had to unergo the struggle of socializing and making new friends. Furthermore, his parents unfortunately divorced and these changes were huge for him. On the bright side, at school Nathaniel was able to succeed and make friends. In fact, he still is in contact with some people from 4th grade.
 </p>
 <br>
-<a href="https://ibb.co/8NgTWHx"><img src="https://i.ibb.co/PFG37dW/image.jpg" alt="image" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'>image hosting for ebay</a>
+<a href="https://ibb.co/8NgTWHx"><img src="https://i.ibb.co/PFG37dW/image.jpg" alt="image" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'></a>
 <br>
 <h1>
 Quick Facts
